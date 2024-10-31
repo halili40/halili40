@@ -1,0 +1,7 @@
+- 👋 Hi, I'm halili
+- 👀 I'm interested in network systems
+- 🌱 I am currently studying at the Faculty of Informatics Engineering
+- 💞️ I am from Pamekasan Madura
+- 📫 How to contact me, you can contact me via instagram ahmdhalili
+- 😄 My Hobby of Playing Futsal
+- ⚡ My dream is to become a computer lecturer
